@@ -7,7 +7,7 @@ Looking for internship
 I am studying at Rajamangala University of Technology Phra Nakhon in the field of Computer Science.
 
 * 🌍  I'm based in Bangkok, Thailand
-* ✉️  You can contact me at [bewdk20004@gmail.com](mailto:bewdk20004@gmail.com)
+* ✉️  You can contact me at [bewdk20004@gmail.com](mailto:bewdk20004@gmail.com)or[chinathip-s@rmutp.ac.th](mailto:chinathip-s@rmutp.ac.th)
 
 ### Skills
 
